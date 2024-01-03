@@ -1,4 +1,4 @@
-[![MasterHead](https://pin.it/lmwFIPL)](https://thaliazalfa.io)
+[![MasterHead](https://i.pinimg.com/564x/8b/aa/5b/8baa5bb80ce306685aa46505ed299153.jpg)](https://thaliazalfa.io)
 <h1 align="center">Hi 👋, I'm Thalia</h1>
 <h3 align="center">I put my interest in AI and ML </h3>
 <img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif">
