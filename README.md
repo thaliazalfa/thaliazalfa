@@ -1,17 +1,17 @@
 [![MasterHead](https://2.bp.blogspot.com/-HoZTeIXYtk0/XvJHUQCTu5I/AAAAAAAAaF8/JLsBtsnK3Wsrm2-nm-xGox_SWaOaBKqqQCLcBGAsYHQ/w919/blackpink-how-you-like-that-lisa-jisoo-jennie-rose-uhdpaper.com-8K-5.2219-wp.thumbnail.jpg)](https://thaliazalfa.io)
 <h1 align="center">Hi 👋, I'm Thalia</h1>
-<h3 align="center">Jennie Blackpink's twin if i could be honest :D</h3>
+<h3 align="center">I put my interest in AI and ML </h3>
 <img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif">
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=thaliazalfa&label=Profile%20views&color=0e75b6&style=flat" alt="thaliazalfa" /> </p>
 
 <p align="left"> <a href="https://twitter.com/hanvjulie" target="blank"><img src="https://img.shields.io/twitter/follow/hanvjulie?logo=twitter&style=for-the-badge" alt="hanvjulie" /></a> </p>
 
-- 🌱 I’m currently learning **at CCIT-FTUI**
+- 🌱 I’m a freshgraduate from professional program **at CCIT-FTUI**
 
-- 📫 How to reach me **thalia.zw@gmail.com**
+- 📫 How to reach me **thalia.zlf@gmail.com**
 
-- ⚡ Fun fact **I do love rap <3**
+- ⚡ Fun fact **I am a fast learner**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
