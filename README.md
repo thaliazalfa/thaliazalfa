@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **thalia.zlf@gmail.com**
 
-- ⚡ Fun fact **I am a fast learner**
+- ⚡ Fun fact **I love challenges!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
